@@ -24,6 +24,6 @@ Com um histórico sólido na **gestão de projetos no setor público e privado**
 
 ## 🔹 Vamos conectar?
 
-📌 **GitHub**: [shirley-monteiro](https://github.com/shirley-montteiro)
+📌 **GitHub**: [shirley-montteiro](https://github.com/shirley-montteiro)
 
 📌 **LinkedIn**: [shirley-monteiro-ap](https://www.linkedin.com/in/shirley-monteiro-ap/)
